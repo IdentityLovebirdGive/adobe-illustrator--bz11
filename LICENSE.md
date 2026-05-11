@@ -1,4 +1,4 @@
-# 
+# Adobe Illustrator for macOS secure Plugin - masking tools and perspective warp offers the most advanced Adobe Illustrator for macOS plugin, with masking tools and perspective
 
 
 
